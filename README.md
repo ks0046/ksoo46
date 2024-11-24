@@ -1,7 +1,6 @@
 # Kriti Samnotra
 
 🌍 **Sustainability Consultant at PwC**  
-📧 **ksamnotra01@gmail.com**  
 [LinkedIn](https://www.linkedin.com/in/kriti-samnotra)
 
 ---
